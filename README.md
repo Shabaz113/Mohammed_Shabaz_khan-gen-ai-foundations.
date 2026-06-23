@@ -1,1 +1,0 @@
-# Mohammed_Shabaz_khan-gen-ai-foundations.
